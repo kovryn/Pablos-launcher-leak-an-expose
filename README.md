@@ -20,6 +20,14 @@
 
 ---
 
+# Skidding ✌
+
+<img width="928" height="766" alt="image" src="https://github.com/user-attachments/assets/e1b1db36-dbfc-4acd-8bef-12da503b7a26" />
+
+https://github.com/retracmp/launcher/blob/master/src-tauri/src/carter.rs
+
+---
+
 # The Truth
 
 Dude’s charging way too much for launchers that barely even work. 💀
