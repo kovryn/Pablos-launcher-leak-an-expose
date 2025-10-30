@@ -26,6 +26,9 @@ Dude’s charging way too much for launchers that barely even work. 💀
 I’m not paying for something this scuffed, so here enjoy it for free. 
 (Ps just dont buy from him ever hes so sus)
 
+<img width="1071" height="170" alt="image" src="https://github.com/user-attachments/assets/f678ab10-9444-4a71-b178-27c456cfea5d" />
+
+
 You’re welcome 😭
 
 > **Disclaimer:** I’m not responsible for what happens when you run it.
