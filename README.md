@@ -23,7 +23,8 @@
 # The Truth
 
 Dude’s charging way too much for launchers that barely even work. 💀
-I’m not paying a premium for something this scuffed, so here — enjoy it for free.
+I’m not paying for something this scuffed, so here enjoy it for free. 
+(Ps just dont buy from him ever hes so sus)
 
 You’re welcome 😭
 
