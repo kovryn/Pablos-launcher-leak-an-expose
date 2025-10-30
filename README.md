@@ -33,3 +33,8 @@ You’re welcome 😭
 
 > **Disclaimer:** I’m not responsible for what happens when you run it.
 > All credit (and blame) goes to Pablo since he made it.
+
+# Fun end
+## THREATSS??????
+
+<img width="481" height="207" alt="image" src="https://github.com/user-attachments/assets/125d2aff-08a2-4a9c-a3e2-6d055e944d7e" />
